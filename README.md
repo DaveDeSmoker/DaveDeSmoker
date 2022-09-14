@@ -1,4 +1,4 @@
-Hi, I’m @Djev aka @Prego
+Hi, I’m @Djev (FirstName) aka @Prego (UserName)
   Currently 19 years old and based in Belgium!
 
 - My Interests in Minecraft, coding, management, marketing & music
