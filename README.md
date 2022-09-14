@@ -6,8 +6,8 @@ Hi, I’m @Djev aka @Prego
 
      My inbox is always opened for questions or fun projects!!
      Contact:
-       - Discord: Prego#5673
-       - Email: regodjev@gmail.com
+        Discord: Prego#5673
+        Email: regodjev@gmail.com
        
        
 "Be You, Stay Weird! Anyone Can Try To Be Like You..
